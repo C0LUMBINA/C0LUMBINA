@@ -41,9 +41,9 @@ $\color{#a4136f}{\textbf{"Fav characters; Junko Enoshima, Columbina, Cacucu, Min
 <p align="center">
 $\color{#dd2084}{\textbf{"Basic DNI criteria, Proshipers and people under 13 do not interact"}}$
 </p>
-
-  ![tumblr_0e338dc2b569b7d98a8ace5f9f4ca05a_b13bde6e_250](https://github.com/user-attachments/assets/41d00e36-5520-42e7-84ba-e984c05088f6)
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/41d00e36-5520-42e7-84ba-e984c05088f6"width="107">
+</p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
