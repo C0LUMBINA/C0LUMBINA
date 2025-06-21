@@ -6,7 +6,7 @@
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b23760ad-6165-421a-ab38-7393fe43a181"width="1920">
+  <img src="https://github.com/user-attachments/assets/63636c36-e6fd-47f4-b996-0192750a7319"width="1920">
 </p>
 <p align="center">
 "Dividers by wavyskies in tumblir"
@@ -20,8 +20,6 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/bfa6fe77-385d-4a88-94eb-dc31bc843b99"width="2047">
 </p>
-
-
 
 
 
