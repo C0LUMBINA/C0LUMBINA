@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?userername=C0LUMBINA&color=a45275&label=Angels+<3)
 <p align="center">
   <img src="https://github.com/user-attachments/assets/40507690-8486-4536-9cfa-5e3088139ce1"width="2047">
 </p>
