@@ -1,5 +1,10 @@
-![](https://komarev.com/ghpvc/?userername=C0LUMBINA&color=a45275&label=Angels+<3)
-<p align="center">
+<div align="center">
+
+<div align="center">
+  
+  ![1b47fe4b](https://github.com/user-attachments/assets/cfcacfb8-fa94-4ca4-846a-993d7a705c46)   ![](https://komarev.com/ghpvc/?username=C0LUMBINA&color=9b5674&label=Angels+from+heaven+<3)   ![acb1e976](https://github.com/user-attachments/assets/80d784b9-7174-4bc9-bccc-481d14c43b4e)
+
+  <p align="center">
   <img src="https://github.com/user-attachments/assets/40507690-8486-4536-9cfa-5e3088139ce1"width="2047">
 </p>
 <p align="center">
