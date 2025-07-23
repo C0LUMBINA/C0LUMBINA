@@ -11,7 +11,10 @@
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e1377cfb-a668-4ba4-ab93-8ec196423e24"width="1920">
+  <img src="https://github.com/user-attachments/assets/a8da9761-306a-4f63-8bce-44990ef205d8"width="1920">
+</p>
+<p align="center">
+"The Columbina thing up this text is made by me :D"
 </p>
 <p align="center">
 "Dividers by wavyskies in tumblir"
