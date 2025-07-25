@@ -11,6 +11,9 @@
 "The Columbina thing up this text is made by me :D"
 </p>
 <p align="center">
+"(Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D)"
+</p>
+<p align="center">
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
 <p align="center">
