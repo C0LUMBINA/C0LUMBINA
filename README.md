@@ -14,6 +14,7 @@
 <p align="center">
 "(Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D)"
 </p>
+
    [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🌕](https://en.pronouns.page/@THE_DAMSELETTE)
 <p align="center">
 "Dividers by wavyskies in tumblir"
