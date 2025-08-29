@@ -11,14 +11,11 @@
  <p align="center">
   <img src="https://github.com/user-attachments/assets/7c0fa38e-2482-4c31-a8cc-bf8d4e9f7d86"width="720">
 </p>
-<p align="center">
-"(Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D)"
-</p>
-
+<p align="center"> $\color{#654262}{\textbf{Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D }}$ 
+  
    [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🌕](https://en.pronouns.page/@THE_DAMSELETTE)
-<p align="center">
-"Dividers by wavyskies in tumblir"
-</p>
+
+<p align="center"> $\color{#654262}{\textbf{"Dividers by wavyskies in tumblir" }}$ 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/41d00e36-5520-42e7-84ba-e984c05088f6"width="107">
 </p>
