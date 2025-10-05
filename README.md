@@ -23,6 +23,8 @@
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
 
-
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/71f520cd-b7f1-46a4-874e-54d9b4c0c681"width="450">
+</p>
+<p align="center"> $\color{#654262}{\textbf{"This are my three fav characters" }}$ 
 
