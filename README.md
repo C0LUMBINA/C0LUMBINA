@@ -13,7 +13,7 @@
 </p>
 <p align="center"> $\color{#654262}{\textbf{Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D }}$ 
   
-   [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🌕](https://en.pronouns.page/@THE_DAMSELETTE)
+   [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🌕](https://pronouns.cc/@The-Damselette)
 <p align="center"> $\color{#654262}{\textbf{"Widget by getmeabeer in pinterest!" }}$ 
 <p align="center"> $\color{#654262}{\textbf{"Dividers by wavyskies in tumblir!" }}$ 
 <p align="center">
