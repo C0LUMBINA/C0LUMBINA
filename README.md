@@ -7,9 +7,11 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
 </p>
-
  <p align="center">
   <img src="https://github.com/user-attachments/assets/adbbb76f-cf9d-4e50-a515-01f24181d948"width="720">
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
 </p>
 <p align="center"> $\color{#654262}{\textbf{Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D }}$ 
   
