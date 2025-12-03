@@ -2,31 +2,31 @@
 
 <div align="center">
   
-![8fafada6](https://github.com/user-attachments/assets/e466ff88-725f-4db6-8c34-9d2c1f05677c)   ![](https://komarev.com/ghpvc/?username=C0LUMBINA&color=9b5674&label=Angels+from+heaven+<3)   ![6c691ed8](https://github.com/user-attachments/assets/5047c6c3-d0be-40e1-a94f-0eb9fbbee8ab)
+![450da4a9](https://github.com/user-attachments/assets/49f180fc-9652-4d89-baa1-ca5cf55c4b5b)   ![](https://komarev.com/ghpvc/?username=C0LUMBINA&color=61c2e2&label=Angels+from+heaven+<3)   ![904808c8](https://github.com/user-attachments/assets/557f54f5-4fd3-4486-9a97-a9a163a6f190)
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
+  <img src="https://github.com/user-attachments/assets/fe13f9b6-147e-4f77-b000-a5739b3ce1c7"width="1080">
 </p>
  <p align="center">
-  <img src="https://github.com/user-attachments/assets/adbbb76f-cf9d-4e50-a515-01f24181d948"width="720">
+  <img src="https://github.com/user-attachments/assets/3f41f330-3ff5-4a9e-a8b9-b34ea3c7bdb1"width="1000">
 </p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
-</p>
-<p align="center"> $\color{#654262}{\textbf{Columbina is my biggest comf character and Gangle is my biggest kin. Just saying :D }}$ 
+<p align="center"> $\color{#dcfdff}{\textbf{"My name...my name is Columbina Hyposelenia"}}$ 
   
    [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Pronouns🌕](https://pronouns.cc/@The-Damselette)
-<p align="center"> $\color{#654262}{\textbf{"Widget by getmeabeer in pinterest!" }}$ 
-<p align="center"> $\color{#654262}{\textbf{"Dividers by wavyskies in tumblir!" }}$ 
+<p align="center"> $\color{#dcfdff}{\textbf{"Dividers and drawing found in tumblr credits to their creators!" }}$ 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/41d00e36-5520-42e7-84ba-e984c05088f6"width="107">
+  <img src="https://github.com/user-attachments/assets/87f0f3c7-4867-40df-8904-3942591ddb62"width="300">
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e336360e-7e1e-4de1-a10a-869e324e6c3c"width="1080">
+  <img src="https://github.com/user-attachments/assets/d97e2184-6315-42ae-9e6d-ba56a393a0d9"width="1080">
 </p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/71f520cd-b7f1-46a4-874e-54d9b4c0c681"width="450">
 </p>
-<p align="center"> $\color{#654262}{\textbf{"This are my three fav characters btw" }}$ 
+<p align="center"> $\color{#dcfdff}{\textbf{"This are my three fav characters btw"}}$ 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
+</p>
+  
 
