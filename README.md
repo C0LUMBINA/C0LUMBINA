@@ -22,7 +22,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/53baac48-68a0-4292-bd79-b4f9d58f4b3b"width="450">
+  <img src="https://github.com/user-attachments/assets/f5005a55-88da-41c5-872b-78bf6ea1b3fa"width="450">
 </p>
 <p align="center"> $\color{#dcfdff}{\textbf{"This are my four fav characters btw"}}$ 
 <p align="center">
