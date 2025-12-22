@@ -22,9 +22,9 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/71f520cd-b7f1-46a4-874e-54d9b4c0c681"width="450">
+  <img src="https://github.com/user-attachments/assets/53baac48-68a0-4292-bd79-b4f9d58f4b3b"width="450">
 </p>
-<p align="center"> $\color{#dcfdff}{\textbf{"This are my three fav characters btw"}}$ 
+<p align="center"> $\color{#dcfdff}{\textbf{"This are my four fav characters btw"}}$ 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7da46a98-371c-4226-a944-9297909d78e1"width="250">
 </p>
