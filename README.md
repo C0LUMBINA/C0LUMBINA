@@ -15,6 +15,10 @@
    [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Straw 2 🌌](https://ultimate-student.straw.page/) ‎  ‎  ‎  ‎ 
    [Pronouns🌕](https://pronouns.cc/@The-Damselette)
 <p align="center"> $\color{#dcfdff}{\textbf{"Dividers and drawing found in tumblr credits to their creators!" }}$ 
+   <p align="center">
+  <img src="https://github.com/user-attachments/assets/2926467b-8025-4f20-bdf5-8d0de9932a3b"width="500">
+</p>
+<p align="center"> $\color{#dcfdff}{\textbf{"Columbina will come home trust trust"}}$ 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/87f0f3c7-4867-40df-8904-3942591ddb62"width="300">
 </p>
