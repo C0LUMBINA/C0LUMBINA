@@ -16,9 +16,9 @@
    [Pronouns🌕](https://pronouns.cc/@The-Damselette)
 <p align="center"> $\color{#dcfdff}{\textbf{"Dividers and drawing found in tumblr credits to their creators!" }}$ 
    <p align="center">
-  <img src="https://github.com/user-attachments/assets/2926467b-8025-4f20-bdf5-8d0de9932a3b"width="500">
+  <img src="https://github.com/user-attachments/assets/94aed813-5e0d-4f37-bdb2-f65e7927826b"width="800">
 </p>
-<p align="center"> $\color{#dcfdff}{\textbf{"Columbina will come home trust trust"}}$ 
+<p align="center"> $\color{#dcfdff}{\textbf{"COLUMBINA CAME HOME LETS FKIN GOOOOOOOOO"}}$ 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/87f0f3c7-4867-40df-8904-3942591ddb62"width="300">
 </p>
