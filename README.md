@@ -13,7 +13,7 @@
 <p align="center"> $\color{#dcfdff}{\textbf{"My name...my name is Columbina Hyposelenia"}}$ 
   
    [Ata🕊](https://c0lumbina.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://c0lumbina.straw.page/) ‎  ‎  ‎  ‎ [Straw 2 🌌](https://ultimate-student.straw.page/) ‎  ‎  ‎  ‎ 
-   [Pronouns🌕](https://pronouns.cc/@The-Damselette)
+   [Pronouns🌕](https://pronouns.cc/@The-Damselette)    [Rentry ❄](https://rentry.co/Messagefromheaven)
 <p align="center"> $\color{#dcfdff}{\textbf{"Dividers and drawing found in tumblr credits to their creators!" }}$ 
    <p align="center">
   <img src="https://github.com/user-attachments/assets/94aed813-5e0d-4f37-bdb2-f65e7927826b"width="800">
