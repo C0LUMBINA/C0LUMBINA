@@ -10,7 +10,7 @@
   <img src="https://github.com/user-attachments/assets/e836a185-84cf-44e9-9f29-74ab85e04882"width="700">
 </p>
 
-   [Ata🕊](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://timebreaker.straw.page/) ‎  ‎  ‎  ‎ 
+   [Ata🕊](https://keeperofthetimeline.atabook.org/)‎ ‎  ‎  ‎  ‎ [Straw🪽](https://time-breaker.straw.page/) ‎  ‎  ‎  ‎ 
    [Pronouns🌕](https://pronouns.cc/@The-Damselette) ‎  ‎  ‎ 
 
 <p align="center"> $\color{#8b3fc4}{\textbf{I like angels i think u can tell}}$
