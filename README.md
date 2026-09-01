@@ -21,6 +21,10 @@
 <p align="center"> $\color{#8b3fc4}{\textbf{Btw hope yall have a great day/afternoon/night and remember to take care of urself oki? oki :3 }}$
 </p>
 
+<img width="150" height="20" alt="aromanticpride" src="https://github.com/user-attachments/assets/1feaddcc-91f3-40dc-91f6-801287cafada" /><img width="150" height="20" alt="asexualpride" src="https://github.com/user-attachments/assets/f26f71a5-007a-4672-afc3-5908c14c3462" /><img width="150" height="20" alt="0079-nonbinary" src="https://github.com/user-attachments/assets/5643d3cf-a5ce-4cc5-9b08-3b06b80de4ff" />
+
+
+
 <img width="150" height="150" alt="columbina-genshin-impact" src="https://github.com/user-attachments/assets/8f0c5a47-23f4-4c81-9cab-6f0cab278bba" />
 <img width="150" height="150" alt="robin-hsr-robin-summereto" src="https://github.com/user-attachments/assets/42d8853f-7167-4608-bce1-c729b6733e0f" />
 
